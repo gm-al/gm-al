@@ -7,4 +7,4 @@
 - Fun fact: I play [Apex Legends](https://www.ea.com/games/apex-legends) for fun, mainly with Horizon, or Pathfinder.
 
 
-This is my [twitter](https://twitter.com/gani_atp) just in case you overlooked :D.
+This is my [twitter](https://twitter.com/gani_atp) just in case you overlooked it :D.
