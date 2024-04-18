@@ -8,4 +8,4 @@
 ⚡ Fun fact: I play [Apex Legends](https://twitter.com/PlayApex) for fun.
 
 
-This is my [Twitter](https://twitter.com/gani_atp) in case you overlooked it :D
+This is my [Twitter](https://twitter.com/gani_atp) in case you overlooked it :D 
